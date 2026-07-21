@@ -1,4 +1,5 @@
 # 93q_f or 93q-f Script
+Tiktok : 93q_f
 
 ⚠️ حقوق محفوظة © 
 2025 93q_f or 93q-f  
